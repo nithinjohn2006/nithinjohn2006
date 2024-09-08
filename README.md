@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @nithinjohn2006, 
-- 👀 I’m interested in delving into cybersecurity and ML.
+- 👀 I’m interested in sleeping.
 - 🌱 I’m currently learning something that is not boring.
-- 💞️ I’m looking to collaborate on a lot of innovative projects.
-- 📫 How to reach me : probably figure out yourself, like you got me github id
+- 💞️ I’m looking forward to sleep.
+- 📫 How to reach me : X/Twitter.
 - 😄 Pronouns: he/him 
-- ⚡ Fun fact: No facts are fun. Facts just clog your mind with unnecessary info amidst stressful life.
+- ⚡ Fun fact: I eat textbooks.
 
 <!---
 nithinjohn2006/nithinjohn2006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
